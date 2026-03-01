@@ -1,1 +1,0 @@
-# Arch_Linux_admins_toxicity
